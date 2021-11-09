@@ -1,1 +1,3 @@
 # ResponsiMDPL
+
+JADWAL PERKULIAHAN 
