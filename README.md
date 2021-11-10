@@ -1,3 +1,3 @@
 # ResponsiMDPL
 
-JADWAL PERKULIAHAN 
+deadline 21 november masih kosong
